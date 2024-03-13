@@ -1,1 +1,1 @@
-# SchoolOfThoughts
+# school2
